@@ -44,4 +44,4 @@ features or data practices change.
 
 
 ### Contact Us
-For privacy questions and requests, contact: kailashking732295@gmail.com
+For privacy questions and requests, contact: kailashkumar732295@gmail.com
